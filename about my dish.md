@@ -1,0 +1,1 @@
+It is a popular dish in North India and Pakistan as an everyday rise dish. It is easy to prepare, unlike briyani. "Zeera" is the hindi word for cumin seeds, often pronounced jeera.
